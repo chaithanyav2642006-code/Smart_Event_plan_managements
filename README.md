@@ -1,0 +1,1 @@
+# Smart_Event_plan_managements
